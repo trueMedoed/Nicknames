@@ -13,4 +13,11 @@
 10. CnepMoCTpeJI - Спермострел
 11. BOT_BAM_XPEH - Вот вам хрен
 12. MaTyIIIka_3eMJI9 - Матушка-Земля
-13. 
+13. CKAJIA_HA_CEBEPE - Скала на севере
+14. JIO)I(HA9_CJIE3A - Ложная слеза
+15. PecToPaH - Ресторан
+16. CeKc_Ha_K0He - Секс на коне
+17. KALASH_MnE_V_LaVaSh - Калаш мне в лаваш
+18. LLITyPM0BuK - Штурмовик
+19. uJIOXa_nyJIEMET4uk - Илюха-пулемётчик
+20. 
