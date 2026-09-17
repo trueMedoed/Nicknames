@@ -20,4 +20,15 @@
 17. KALASH_MnE_V_LaVaSh - Калаш мне в лаваш
 18. LLITyPM0BuK - Штурмовик
 19. uJIOXa_nyJIEMET4uk - Илюха-пулемётчик
-20. 
+20. A_c_T_p_o_H_o_M - Астроном
+21. DiBHbiU_SOSOK - Дивный сосок
+22. CuHOnTuk - Синоптик
+23. Po}|{A - Рожа
+24. s_ponedelnika_ne_6yxal - С понедельника не бухал
+25. ErunetTcKa9_CuJIa - Египетская сила
+26. DeDoTMoPo3 - Дед-отмороз
+27. OnacHbIu_BoZpacT - Опасный возраст
+28. uDeT_3aIIuCb - Идёт запись
+29. BuHHuJIyX - Винни-Пух
+30. Koteyka_Rybkin - Котейка-рыбкин
+31. 
